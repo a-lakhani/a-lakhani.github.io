@@ -1,1 +1,0 @@
-# a-lakhani.github.io
